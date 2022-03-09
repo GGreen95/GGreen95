@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Genesis
-- 👀 I’m interested in Ethical Hacking.
+- 👀 I’m interested in all things Cyber
 - 🌱 I’m currently learning cyber security.
 - 📫 How to reach me at Genesisgreen95@gmail.com
 
